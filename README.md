@@ -87,4 +87,4 @@ This software is distributed under the [MIT License](https://opensource.org/lice
 
 ---
 
-Thank you for trusting Decryptor’s Roobet Predictor as your analytical research companion. Step confidently into the Roobet world and uncover new insights with the power of our advanced hash decryptor. 🚀🎮
+Thank you for trusting Decryptor’s Roobet Predictor as your analytical research companion. Step confidently into the Roobet world and uncover new insights with the power of our advanced hash decryptor. 🚀
